@@ -1,0 +1,1 @@
+I I specialize in creating custom designs, including logos, posters, and brochures. I have a strong interest in design and have delivered high-quality creative services to companies in a professional and proficient manner.
